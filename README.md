@@ -1,0 +1,2 @@
+# Ostap-Myniv
+Motivation CONTENT
